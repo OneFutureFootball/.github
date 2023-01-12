@@ -1,1 +1,6 @@
-# .github
+
+1. Greetings to you. This is a recorded announcement as I'm afriad we're all out at the moment. The Commerical Council of Magrathea thanks you for your esteemed visit, but regrets that the entire planet is temporarily closed for business. Thank you. If you would like to leave your name and a planet where you can be contacted, kindly speak when you hear the tone.
+
+2. We would like to assure you that as soon as our business is resumed, announcements will be made in all fashionable magazines and colour supplements where our clients will once again be able to select from all that's best in contemporary geography. Meanwhile we thank our clients for their kind interst and would ask them to leave...now.
+
+3. It is most gratifying that your enthusiasm for our planet continues unabated and so we would like to assure you that the guided missiles currently converging with your ship are part of a special service we extend to all of our most enthusiastic clients; and the fully armed nuclear warheads are of course merely a courtesy detail. We look forward to your custom in future lives. Thank you.
